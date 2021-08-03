@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MakoPog
+- 👀 I’m interested in Programming and Developing
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on -
+- 📫 How to reach me: Discord: MakoPog#0001
